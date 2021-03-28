@@ -1,5 +1,5 @@
 
-Hey, I'm Subodh Inamdar, a Web Developer 🚀, Back End Developer & Discord Bot Developer from India. ~~And a Weeb.~~
+Hey, I'm Subodh Inamdar, a Web Developer 🚀, Back End Developer & Discord Bot Developer from morocco. ~~And a Weeb.~~
 
  **Information:**
 
